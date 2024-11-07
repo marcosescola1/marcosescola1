@@ -1,1 +1,1 @@
-eu sou marcos estou usando esa comta para computaçao
+eu sou marcos estou usando esa conta para computaçao 
